@@ -1,1 +1,1 @@
-# smtheorror.github.io
+# smtherror.github.io
